@@ -6,7 +6,7 @@ Beyond the theoretical world of physics, I'm an avid sports enthusiast. You can 
 
 As someone deeply fascinated by technology, I find myself drawn to the world of design and creation. I dedicate over 10 hours each week to learning and honing my skills in CAD, SolidWorks, and Open Circuit. There's a unique satisfaction in solving puzzles and bringing ideas to life through these tools.
 
-The aim of this portfolio is to connect with individuals who share similar passions in physics, engineering, design, and even sports! I'm excited about the prospect of collaborating on interesting projects and embarking on this wonderful journey of learning and growth together.
+This portfolio aims to connect with individuals who share similar passions in physics, engineering, design, and even sports! I'm excited about the prospect of collaborating on interesting projects and embarking on this wonderful journey of learning and growth together.
 
 ---
 
